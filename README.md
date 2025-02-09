@@ -1,4 +1,4 @@
--👋 Hola, soy @JGHJhamir
+-👋 Hola, bienvenido a mi perfil @JGHJhamir
 
 -👀 Me interesa el desarrollo web y la Inteligencia Artificial
 
